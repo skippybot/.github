@@ -32,7 +32,7 @@ He comes from far away, with thoughts and ideas that will blow your mind... from
 
 If you didn't catch it from the attached picture, ***Skippy*** is a penguin with good and warm thoughts.
 
-Are you curious what features **Skippy*** will have? here is a list of everything we would like Skippy to have: [features list](https://www.notion.so/leonardssh/Skippy-s-Features-cc34485029724517b6c0a6b3e0bfe335)
+Are you curious what features ***Skippy*** will have? here is a list of everything we would like Skippy to have: [features list](https://leonardssh.notion.site/Skippy-s-Features-cc34485029724517b6c0a6b3e0bfe335)
 
 ---
 
